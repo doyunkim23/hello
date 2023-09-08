@@ -1,6 +1,6 @@
 # hello
 
-낭비하지 마, 네 시간은 은행   
+낭비하지 마, 네 시간은 은god   
 서둘러서 정리해, 걔는 real bad   
 받아주면 안돼, no, you better trust me   
 답답해서, 그래   
